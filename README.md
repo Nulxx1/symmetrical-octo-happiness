@@ -1,2 +1,1 @@
-# symmetrical-octo-happiness
-"Se comprar jogos online não é possui-lo, piratear não é roubo".
+![https://www.google.com/url?sa=i&url=https%3A%2F%2Fwallpapers-clan.com%2Fdesktop-wallpapers%2Fdragon-ball-goku-sparks-gif%2F&psig=AOvVaw00v9ZqjvSp_-nJSFCXMyCi&ust=1722599428825000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCMiBqIzd04cDFQAAAAAdAAAAABAE]
