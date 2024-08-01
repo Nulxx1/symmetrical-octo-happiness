@@ -1,1 +1,1 @@
-![https://www.google.com/url?sa=i&url=https%3A%2F%2Fwallpapers-clan.com%2Fdesktop-wallpapers%2Fdragon-ball-goku-sparks-gif%2F&psig=AOvVaw00v9ZqjvSp_-nJSFCXMyCi&ust=1722599428825000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCMiBqIzd04cDFQAAAAAdAAAAABAE]
+!![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fbr.pinterest.com%2Fkenzorodrigues%2Fgravity-falls-bill-cipher%2F&psig=AOvVaw0gX4CBhCvQf8annB5va6Do&ust=1722599791961000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCKix17be04cDFQAAAAAdAAAAABAE)
